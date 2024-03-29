@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @randolphgamo
 - I am constantly learning. I am sure, I don't know.
+- Here's my creed: 
 - 🌱 Successful people start before they feel ready| Permit yourself to write junk | Produce the 1st draft as quickly as possible. You can always optimize after.
 
 <!---
